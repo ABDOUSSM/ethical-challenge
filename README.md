@@ -1,1 +1,1 @@
-# ethical-challenge
+CyberWing2025
